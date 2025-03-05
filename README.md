@@ -1,7 +1,7 @@
 
 # Industrial Revolution
 
-!(https://s3-eu-central-1.amazonaws.com/cartoons-s3/styles/large/s3/cartoons/2012/05/trees_turned_into_smoke__alfredo_martirena.jpg?itok=cCfIJLp5)
+![https://s3-eu-central-1.amazonaws.com/cartoons-s3/styles/large/s3/cartoons/2012/05/trees_turned_into_smoke__alfredo_martirena.jpg?itok=cCfIJLp5]
 
 
 # Emergency
