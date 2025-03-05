@@ -31,14 +31,13 @@
 The Industrial Revolution was a period of scientific and technological development in the 18th century that transformed largely rural, agrarian societies—especially in Europe and North America—into industrialized, urban ones.
 
 
-# Emergency
-https://stratfordschools.schoology.com/home
+# Links
 
-# Doc
+## Doc
 https://docs.google.com/document/d/1Q9i22yrHYADHQP2hyTU1FotOJb3CDNBKXCelQ4pxZGU/edit?tab=t.0
 
 
-# CCported
+## CCported
 https://docs.google.com/document/d/11yw7n2F84XOkAwpM8tF-ZYHESuus1Gg7dmJ-WJum1fk/edit?tab=t.0#heading=h.5bvxli85krky
 
 ccported.click 
@@ -66,7 +65,7 @@ https://arandomdev12.github.io/CCPORTED-PLUS/
 ~~ccported.github.io~~
 
 
-# Google Sites
+## Google Sites
 https://sites.google.com/site/thegamecompilation/worlds-hardest-game
 
 https://sites.google.com/view/meximath/enter
@@ -79,14 +78,14 @@ https://sites.google.com/classrooms.management/view/
 
 https://docs.google.com/presentation/d/1laufQdtzIcoX3sWH9QxgD2e0l7-3R7ZTsgT0L6vUVLM/edit#slide=id.p
 
-# Github.io
+## Github.io
 **https://drakonix1050.github.io/peterpanlostinneverland.github.io/**
 
 https://lekug.github.io/tn6pS9dCf37xAhkJv/
 
 https://lekug.github.io/tn6pS9dCf37xAhkJv/
 
-# Other
+## Other
 https://www.multiplication.com/
 
 https://www.timestables.com/
@@ -112,6 +111,9 @@ https://driving-tests.org/driving-games/
 https://shawneestatechronicle.com/games/dinosaur-game/
 
 ~~culinaryschools.org~~
+
+# Emergency
+https://stratfordschools.schoology.com/home
 
 
 
