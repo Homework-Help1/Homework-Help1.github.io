@@ -78,10 +78,49 @@ The Industrial Revolution was a period of scientific and technological developme
 
 [https://docs.google.com/presentation/d/1laufQdtzIcoX3sWH9QxgD2e0l7-3R7ZTsgT0L6vUVLM/edit#slide=id.p](https://docs.google.com/presentation/d/1laufQdtzIcoX3sWH9QxgD2e0l7-3R7ZTsgT0L6vUVLM/edit#slide=id.p)
 
+[https://sites.google.com/site/unblockedgames77](https://sites.google.com/site/unblockedgames77)
+
+[https://sites.google.com/view/classroom-workspaces/home](https://sites.google.com/view/classroom-workspaces/home)
+
+[https://sites.google.com/view/unblockedgames6969us](https://sites.google.com/view/unblockedgames6969us)
+
+[**https://storage.googleapis.com/padlet-uploads/1465166829/7b89eec39e04ca34145de5dcc72c4b77/boomboom__1___1_.html**](https://storage.googleapis.com/padlet-uploads/1465166829/7b89eec39e04ca34145de5dcc72c4b77/boomboom__1___1_.html)
+
+[https://google-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/version@843c1a10f4bf78019b513ea7a8a8c3146f3dfa59/2slope.xml&container=ig](https://google-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/version@843c1a10f4bf78019b513ea7a8a8c3146f3dfa59/2slope.xml&container=ig)
+
+[https://google-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/element@9cccb2fafb569c963501a5d818472b561121cea6/totm.xml&container=ig](https://google-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/element@9cccb2fafb569c963501a5d818472b561121cea6/totm.xml&container=ig)
+
+[~~https://sites.google.com/view/unblockedhubwebsite/welcome~~](https://sites.google.com/view/unblockedhubwebsite/welcome)
+
+[~~https://sites.google.com/site/thegamecompilation/classroom-6x~~](https://sites.google.com/site/thegamecompilation/classroom-6x)
+
 ## Github.io
 [**https://drakonix1050.github.io/peterpanlostinneverland.github.io**](https://drakonix1050.github.io/peterpanlostinneverland.github.io)
 
 [https://lekug.github.io/tn6pS9dCf37xAhkJv](https://lekug.github.io/tn6pS9dCf37xAhkJv)
+
+[https://candy-crush-online.github.io/](https://candy-crush-online.github.io/)
+
+[https://bloons-towerdefense.github.io/#google_vignette](https://bloons-towerdefense.github.io/#google_vignette)
+
+[https://cookieclickerfree.github.io/](https://cookieclickerfree.github.io/)
+
+[~~https://agentsgams.github.io~~]((https://agentsgams.github.io))
+
+
+
+## StrongDogs
+[weakcatxp.github.io](weakcatxp.github.io)
+
+[https://mathcordxp.github.io](https://mathcordxp.github.io)
+
+[https://fundle.org](https://fundle.org)
+
+[65a.org](65a.org)
+
+[mastersite.org](mastersite.org)
+
+[~~strongdogxp.github.io~~](strongdogxp.github.io)
 
 ## Other
 [https://www.multiplication.com](https://www.multiplication.com)
@@ -107,6 +146,14 @@ The Industrial Revolution was a period of scientific and technological developme
 [https://driving-tests.org/driving-games](https://driving-tests.org/driving-games)
 
 [https://shawneestatechronicle.com/games/dinosaur-game](https://shawneestatechronicle.com/games/dinosaur-game)
+
+[https://mathster.com/games/tetris/](https://mathster.com/games/tetris/)
+
+[https://www.mathster.com/games/connect4/](https://www.mathster.com/games/connect4/)
+
+[https://www.lumpty.com/amusements/Games/games.html](https://www.lumpty.com/amusements/Games/games.html)
+
+[https://www.cbc.ca/kids/games](https://www.cbc.ca/kids/games)
 
 [~~culinaryschools.org~~](culinaryschools.org)
 
