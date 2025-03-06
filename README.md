@@ -4,7 +4,7 @@
 ![Trees turned to smoke](https://s3-eu-central-1.amazonaws.com/cartoons-s3/styles/large/s3/cartoons/2012/05/trees_turned_into_smoke__alfredo_martirena.jpg)
 
 ## Key Features:
-* Inventions: The Spinning Jenny, the Power Loom, and the steam engine were all invented during the Industrial Revolution
+* Inventions: The Spinning Jenny, the The Flying Shuttle, the Water frame, the mule, and the steam engine were all invented during the Industrial Revolution
 * Manufacturing: Goods were made by machines instead of by hand
 * Production: Production increased, and prices decreased
 * Migration: People moved from rural areas to cities
