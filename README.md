@@ -162,9 +162,10 @@ The Industrial Revolution was a period of scientific and technological developme
 
 ## Off Github
 [https://definitelyscience.com/](https://definitelyscience.com/)
+
 [https://nebulaproxy.io/en_US/](https://nebulaproxy.io/en_US/)
+
 [https://holyunblocker.org/](https://holyunblocker.org/)
-[]()
 
 # Emergency
 [https://stratfordschools.schoology.com/home](https://stratfordschools.schoology.com/home)
