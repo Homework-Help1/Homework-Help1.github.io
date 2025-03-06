@@ -158,7 +158,13 @@ The Industrial Revolution was a period of scientific and technological developme
 
 [https://www.cbc.ca/kids/games](https://www.cbc.ca/kids/games)
 
-[~~culinaryschools.org~~](culinaryschools.org)
+[~~culinaryschools.org~~](culinaryschools.org)'
+
+## Off Github
+[https://definitelyscience.com/](https://definitelyscience.com/)
+[https://nebulaproxy.io/en_US/](https://nebulaproxy.io/en_US/)
+[https://holyunblocker.org/](https://holyunblocker.org/)
+[]()
 
 # Emergency
 [https://stratfordschools.schoology.com/home](https://stratfordschools.schoology.com/home)
